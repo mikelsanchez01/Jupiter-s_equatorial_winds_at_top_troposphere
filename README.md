@@ -1,1 +1,1 @@
-# Jupiter-s_equatorial_winds_at_top_troposphere
+# Jupiter's equatorial winds at top troposphere
